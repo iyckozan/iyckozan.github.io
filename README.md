@@ -1,0 +1,1 @@
+# iyckozan.github.io
